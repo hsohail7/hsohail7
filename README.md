@@ -6,6 +6,7 @@
 
 - 📫 How to reach me: **hassansohail02003@gmail.com**
 - 🖥️ &nbsp;Connect with me on [LinkedIn](https://www.linkedin.com/in/hassansohail03/)
+- 📝 I study at Western University
 
 <br/>
 
